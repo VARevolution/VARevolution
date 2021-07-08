@@ -27,6 +27,9 @@ Meeting management and reaping good results out of it.
 
 Thank you for visiting my profile!
 
+I'm a fresher and my work experiences are usually part time services in a catering business
+and freelance photographer locally.
+
 <!---
 VARevolution/VARevolution is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
