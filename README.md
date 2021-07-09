@@ -4,6 +4,30 @@
 - 💞️ I’m looking to collaborate on task that is inclined with Virtual Assistance...
 - 📫 How to reach me just visit the website provided @Revolution you do less by connecting with us...
 
+    My name is Nelson A. Barrientos, 20 years old. Residing in Taloot,Argao, Cebu.
+I’m a Senior High graduate for Academic Strand Elective in Biology.I have been 
+trained intensively by the Department of Information and Communications Technology 
+under their Digital Jobs Training Program for Virtual Assistance Courses such as 
+Digital Marketing, Graphic Designing, Customer Relationship Management and many more.
+
+There are three factors that would describe myself: one is being individualist, 
+being patient and last is being focused. 
+
+    Being an individualist helps me to take 
+decisions and actions independently, having self reliance and self sufficiency. 
+I’m able to work with projects without the help of others because I feel 
+conscious and unsatisfied with my work unless it’s needed in a working environment.
+
+    Being patient to achieve goals, especially big goals, and this requires patience. 
+If we are too impatient, desiring to have immediate results, we might be 
+disappointed and quit our goals. Aside from studying to improve ourselves, we 
+should set ourselves clear visions and are timely relevant towards our goals.
+
+    Last is being focused, I remind myself of my ultimate goals. Creating a vision board, 
+a mind movie, or some system that serves as a constant reminder of what Im working 
+toward. I always visualize this goal and put into details to be better and serves 
+with quality.
+    
     I am a freelancer and my working ground is based on information technology. 
 Like, it could be digital marketing such as live chat support, graphic designing 
 using Canva and other online freelancing sections. I can do anything that is 
@@ -28,7 +52,8 @@ Meeting management and reaping good results out of it.
 Thank you for visiting my profile!
 
 I'm a fresher and my work experiences are usually part time services in a catering business
-and freelance photographer locally.
+and freelance photographer locally. I also worked with one client recently with encoding values
+to Microsoft Excel or Google Sheet Forms!
 
 <!---
 VARevolution/VARevolution is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
